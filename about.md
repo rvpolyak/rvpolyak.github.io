@@ -4,7 +4,7 @@ title: Roberta Polyak
 permalink: /about/
 ---
 
-My curiosities lie in business, business cultures, what makes great leaders, the dynamics of people, the power of self improvement, reading good books and expanding my knowledge.
+My curiosities lie in reading good books, running, nutrition, business, business cultures, what makes great leaders, the dynamics of people, the power of self improvement, and expanding my knowledge.
 
 I am fascinated by the likes of Larry Eillison and Steve Jobs who in their ruthless pursuit and often barbaric ways use their brilliance to create amazing things.
 
